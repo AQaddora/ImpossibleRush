@@ -1,2 +1,8 @@
 # ImpossibleRush
-20 Minutes Game
+.
+**This Game was made in 20 minutes**, here is a video of making it: XXXXXXXXXXXXXXXXXX
+.
+*it was made applying to #Brackeys #10_minute_game challenge.*
+.
+HAVE FUN!
+**Please like us on Facebook**: fb.me/GamerBoxStudios
